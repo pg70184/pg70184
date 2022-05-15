@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pg70184
 - 👀 I’m interested in ...Learning to code
-- 🌱 I’m currently learning ...Java
+- 🌱 I’m currently learning ...Python HTML and CSS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...pg70184@gmail.com
 
