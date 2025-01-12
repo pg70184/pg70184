@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **pg70184@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1RF6_eqhXqqjLzw1Rb4M3jOhUgaVFybYx9GJPDUqmLK8/edit?usp=sharing](https://docs.google.com/document/d/1RF6_eqhXqqjLzw1Rb4M3jOhUgaVFybYx9GJPDUqmLK8/edit?usp=sharing)
+- 📄 Know about my experiences [Link to my Resume](https://docs.google.com/document/d/1RF6_eqhXqqjLzw1Rb4M3jOhUgaVFybYx9GJPDUqmLK8/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
